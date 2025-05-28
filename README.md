@@ -1,2 +1,18 @@
 ![](https://view-counter.tobyhagan.com/?user=twoj_github_username)
-Witam wszystkich,prezentuje wam dzisiaj moją pierwszą stronę zrobione przy pomocy ai mam nadzieje,że będzie wam się podobać ;)
+Witam wszystkich
+skibidibi
+100%
+tak
+tak
+tak
+nie
+nie
+wiem
+moze
+tak 
+napewno
+po co to czytasz wgl
+co ja wgl pisze
+nwm 
+skibidibi
+
